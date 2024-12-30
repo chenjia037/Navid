@@ -1,4 +1,4 @@
-# Taylor's University Professor NOOR, Professor Navid has serious academic misconduct and bullied students, so amazing!
+#  University Professor NOOR, Professor Navid has serious academic misconduct and bullied students, so amazing!
 The overall course of events
 1. Professor Noor, as the corresponding author, submitted a paper to this journal without one student
 permission (the paper was previously submitted to SCI Zone 1, but this journal is not even SCI)
